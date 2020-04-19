@@ -8,8 +8,8 @@ features = ["disqus", "google analytics","share"]
 min_version=0.14
 
 [author]
-  name = "Valere JEANTET"
-  homepage = "http://vjeantet.fr"
+  name = "Lethabo Moloele"
+  homepage = "http://lethabomo.co.za"
 
 [original]
   name = "Casper"

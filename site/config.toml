@@ -12,9 +12,9 @@ canonifyurls = true
 [params]
   description = "this is my description"
   cover = "images/cover.jpg"
-  author = "Valère JEANTET"
+  author = "Lethabo Moloele"
   authorlocation = "Paris, France"
-  authorwebsite = "http://vjeantet.fr"
+  authorwebsite = "http://lethabomo.co.za"
   bio= "my bio"
   logo = "images/logo.png"
   googleAnalyticsUserID = "UA-79101-12"
