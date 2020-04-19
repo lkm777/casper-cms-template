@@ -6,4 +6,4 @@ Hello World Welcome to static cms jamstack baby!!!
 
 ![wash your hands](/img/blog/1.hand-washing-wet_hands.width-1534.jpg)
 
-Remember to wash your hands idiot!!!
+Remember to wash your hands!!!
