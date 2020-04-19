@@ -12,7 +12,7 @@ canonifyurls = true
 [params]
   description = "this is my description"
   cover = "images/cover.jpg"
-  author = "Lethabo Moloele"
+  author = "Admin"
   authorlocation = "Mamelodi, Pretoria"
   authorwebsite = "http://lethabomo.co.za"
   bio= "my bio"
