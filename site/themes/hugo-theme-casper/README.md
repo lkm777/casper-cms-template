@@ -55,7 +55,7 @@ canonifyurls = true
   author = "Admin"
   authorlocation = "Mamelodi, Pretoria"
   authorwebsite = "http://lethabomo.co.za"
-  bio= "my bio"
+  bio= "seek the truth, listen to the truth, teach the truth, love the truth, abide by the truth and defend the truth unto death."
   logo = "images/logo.png"
   googleAnalyticsUserID = "UA-79101-12"
   # Optional RSS-Link, if not provided it defaults to the standard index.xml
