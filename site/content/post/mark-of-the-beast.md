@@ -4,6 +4,6 @@ date: '2020-04-22T12:24:41+02:00'
 ---
 In the previous articles, we have seen how God foretold the future first to King Nebuchadnezzar of Babylon through the symbolism of a magnificent statue and then in greater detail directly to Daniel through four beasts arising out of the sea.
 
-
+![](/img/blog/9056ffd05b454281a5b5ec379361b2e9.jpg)
 
 Author: Water Veith
