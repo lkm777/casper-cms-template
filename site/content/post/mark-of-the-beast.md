@@ -6,7 +6,7 @@ In the previous articles, we have seen how God foretold the future first to King
 
 <iframe width="420" height="315"
 
-src="https://www.youtube.com/embed/tgbNymZ7vqY">
+src="https://m.youtube.com/watch?v=GGkbxdhQKjk">
 
 </iframe>
 
