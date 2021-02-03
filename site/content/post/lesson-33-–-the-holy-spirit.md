@@ -4,11 +4,11 @@ date: '2021-02-03T22:54:15+02:00'
 ---
 Lesson 33 – The Holy Spirit
 
-1) What is the Holy Spirit?
+1. What is the Holy Spirit?
 
-**John 16:7 “Nevertheless I tell you the truth; It is expedient for you that I go**
+**John 16:7 “Nevertheless I tell you the truth; It is expedient for you that I go**
 
-**away: for if I go not away, the Comforter will not come unto you; but if I**
+**away: for if I go not away, the Comforter will not come unto you; but if I**
 
 **depart, I will send ___ unto you.”**
 
@@ -18,9 +18,9 @@ Biblical. The Holy Spirit is referred to as “He” in the Holy Scriptures.
 
 This text also tells us that He is our Comforter.
 
-2) What is the work of the Holy Spirit?
+2. What is the work of the Holy Spirit?
 
-**John 16:8 “And when \_\_ is come, \_\_will reprove the world of ___, and of**
+**John 16:8 “And when \_\_ is come, \_\_will reprove the world of ___, and of**
 
 **\_\_\_\_\_\_\_\_, and of \_\_\_\_\_\_\_\_:”**
 
@@ -32,17 +32,17 @@ you with the consequences of your choices – judgment. God is doing everything
 
 He can to save us. All of heaven is on our side.
 
-3) What is the Holy Spirit part of?
+3. What is the Holy Spirit part of?
 
-**Matthew 28:19, 20 “And Jesus came and spake unto them, saying, All power**
+**Matthew 28:19, 20 “And Jesus came and spake unto them, saying, All power**
 
-**is given unto me in heaven and in earth. Go ye therefore, and teach all**
+**is given unto me in heaven and in earth. Go ye therefore, and teach all**
 
-**nations, baptizing them in the name of the \_\_\_\_\_\__, and of the \_\_\_\_, and of**
+**nations, baptizing them in the name of the \_\_\_\_\_\__, and of the \_\_\_\_, and of**
 
-**the \_\_\_\_\_ \_\_\_\_\__: Teaching them to observe all things whatsoever I have**
+**the \_\_\_\_\_ \_\_\_\_\__: Teaching them to observe all things whatsoever I have**
 
-**commanded you: and, lo, I am with you alway, even unto the end of the**
+**commanded you: and, lo, I am with you alway, even unto the end of the**
 
 **world. Amen.”**
 
@@ -50,9 +50,9 @@ He can to save us. All of heaven is on our side.
 
 Spirit. He is the third person of the Godhead.
 
-4) Does the Holy Spirit have emotions?
+4. Does the Holy Spirit have emotions?
 
-**Ephesians 4:30 “And \_\_\_\_\_\__ not the holy Spirit of God, whereby ye are**
+**Ephesians 4:30 “And \_\_\_\_\_\__ not the holy Spirit of God, whereby ye are**
 
 **sealed unto the day of redemption.”**
 
@@ -64,11 +64,11 @@ Spirit, His power is diminished in our lives. On the flipside, His power is
 
 strengthened in our lives when we follow what God has said.
 
-5) Will the Holy Spirit always strive with humanity?
+5. Will the Holy Spirit always strive with humanity?
 
-**Genesis 6:3 “And the LORD said, My spirit shall not always \_\_\_\_\_\_ with**
+**Genesis 6:3 “And the LORD said, My spirit shall not always \_\_\_\_\_\_ with**
 
-**man, for that he also is flesh: yet his days shall be an hundred and twenty**
+**man, for that he also is flesh: yet his days shall be an hundred and twenty**
 
 **years.”**
 
@@ -82,29 +82,29 @@ what God’s will is. This will strengthen the voice of the Holy Spirit in your 
 
 making it much easier to follow His guidance.
 
-6) On a practical level, what does the Holy Spirit do in our lives?
+6. On a practical level, what does the Holy Spirit do in our lives?
 
-**Galatians 5:22-26 “But the \_\_\_\_ of the Spirit is love, joy, peace,**
+**Galatians 5:22-26 “But the \_\_\_\_ of the Spirit is love, joy, peace,**
 
-**longsuffering, gentleness, goodness, faith, Meekness, temperance: against**
+**longsuffering, gentleness, goodness, faith, Meekness, temperance: against**
 
-**such there is no law. And they that are Christ's have crucified the flesh with**
+**such there is no law. And they that are Christ's have crucified the flesh with**
 
-**the affections and lusts. If we live in the Spirit, let us also walk in the Spirit.**
+**the affections and lusts. If we live in the Spirit, let us also walk in the Spirit.**
 
-**Let us not be desirous of vain glory, provoking one another, envying one**
+**Let us not be desirous of vain glory, provoking one another, envying one**
 
 **another.”**
 
 **NOTE**: The Holy Spirit works out in our life the characteristics of Jesus Christ.
 
-7) What kind of spirit does the Holy Spirit give us?
+7. What kind of spirit does the Holy Spirit give us?
 
-**Ezekiel 36:26-27 “A ___ heart also will I give you, and a new spirit will I put**
+**Ezekiel 36:26-27 “A ___ heart also will I give you, and a new spirit will I put**
 
-**within you: and I will take away the stony heart out of your flesh, and I will**
+**within you: and I will take away the stony heart out of your flesh, and I will**
 
-**give you an heart of \_\_\_\_\_. And I will put my \_\_\_\_\_ within you, and cause**
+**give you an heart of \_\_\_\_\_. And I will put my \_\_\_\_\_ within you, and cause**
 
 **you to walk in my statutes, and ye shall keep my judgments, and do them .”**
 
@@ -116,11 +116,11 @@ different than the spirit of this world. This world has a spirit of selfishness,
 
 Spirit of God is a spirit of selflessness.
 
-8) Did the Holy Spirit participate in the act of creation?
+8. Did the Holy Spirit participate in the act of creation?
 
-**Genesis 1:2 “And the earth was without form, and void; and darkness was**
+**Genesis 1:2 “And the earth was without form, and void; and darkness was**
 
-**upon the face of the deep. And the \_\_\_\_\_\_ of \_\_\_\__ moved upon the face of**
+**upon the face of the deep. And the \_\_\_\_\_\_ of \_\_\_\__ moved upon the face of**
 
 **the waters.”**
 
@@ -128,13 +128,13 @@ Spirit of God is a spirit of selflessness.
 
 recreation.
 
-9) What does the Holy Spirit guide us into?
+9. What does the Holy Spirit guide us into?
 
-**John 16:13-14 “Howbeit when he, the Spirit of truth, is come, he will guide**
+**John 16:13-14 “Howbeit when he, the Spirit of truth, is come, he will guide**
 
-**you into \_\_\_ \_\_\___: for he shall not speak of himself; but whatsoever he shall**
+**you into \_\_\_ \_\_\___: for he shall not speak of himself; but whatsoever he shall**
 
-**hear, that shall he speak: and he will shew you things to come. He shall**
+**hear, that shall he speak: and he will shew you things to come. He shall**
 
 **glorify me: for he shall receive of mine, and shall shew it unto you.”**
 
@@ -148,11 +148,11 @@ harmony with what the Bible says. If the Spirit is telling you something contrar
 
 to the Bible, be rest assured, it is not the Holy Spirit.
 
-10) What does God use in order to teach His children?
+10. What does God use in order to teach His children?
 
-**John 14:26 “But the Comforter, which is the Holy Ghost, whom the Father**
+**John 14:26 “But the Comforter, which is the Holy Ghost, whom the Father**
 
-**will send in my name, he shall \_\_\_\__ you all things, and bring all things to**
+**will send in my name, he shall \_\_\_\__ you all things, and bring all things to**
 
 **your \_\_\_\_\_\_\_\_\_\_, whatsoever I have said unto you.”**
 
@@ -164,17 +164,17 @@ responsibility is to flood our minds with the truths of God’s word so that the
 
 Spirit can bring it can back as it is needed.
 
-11) What is it called when someone rejects the Holy Spirit persistently?
+11. What is it called when someone rejects the Holy Spirit persistently?
 
-**Matthew 12:31-32 “Wherefore I say unto you, All manner of sin and**
+**Matthew 12:31-32 “Wherefore I say unto you, All manner of sin and**
 
-**blasphemy shall be forgiven unto men: but the \_\_\_\_\_\_\_\__ against the Holy**
+**blasphemy shall be forgiven unto men: but the \_\_\_\_\_\_\_\__ against the Holy**
 
-**Ghost shall not be forgiven unto men. And whosoever speaketh a word**
+**Ghost shall not be forgiven unto men. And whosoever speaketh a word**
 
-**against the Son of man, it shall be forgiven him: but whosoever speaketh**
+**against the Son of man, it shall be forgiven him: but whosoever speaketh**
 
-**against the Holy Ghost, it shall not be forgiven him, neither in this world,**
+**against the Holy Ghost, it shall not be forgiven him, neither in this world,**
 
 **neither in the world to come.”**
 
@@ -192,9 +192,9 @@ light with you. Walk while ye have the light, lest darkness come upon you: for h
 
 that walketh in darkness knoweth not whither he goeth.” (John 12:35)
 
-12) What do we become as we follow the guidance of the Holy Spirit?
+12. What do we become as we follow the guidance of the Holy Spirit?
 
-**Romans 8:14 “For as many as are led by the Spirit of God, they are the \_\_\_\_**
+**Romans 8:14 “For as many as are led by the Spirit of God, they are the \_\_\_\_**
 
 **of \_\_\_\_.”**
 
