@@ -2,11 +2,11 @@
 title: Lesson 30 – Christian Stewardship
 date: '2021-02-03T23:28:47+02:00'
 ---
-1) Who is the one that gives us ability to acquire wealth?
+1. Who is the one that gives us ability to acquire wealth?
 
-**Deuteronomy 8:18 “But thou shalt remember the LORD thy God: for it is he**
+**Deuteronomy 8:18 “But thou shalt remember the LORD thy God: for it is he**
 
-**that giveth thee \_\_\_\_\_ to get \_\_\_\_\__, that he may establish his covenant**
+**that giveth thee \_\_\_\_\_ to get \_\_\_\_\__, that he may establish his covenant**
 
 **which he sware unto thy fathers, as it is this day.”**
 
@@ -14,17 +14,17 @@ date: '2021-02-03T23:28:47+02:00'
 
 ourselves.
 
-2) To whom does the Earth belong?
+2. To whom does the Earth belong?
 
-**Psalm 24:1 “The earth is the \_\_\_\_\_\__, and the fullness thereof; the world,**
+**Psalm 24:1 “The earth is the \_\_\_\_\_\__, and the fullness thereof; the world,**
 
 **and they that dwell therein.”**
 
 **NOTE**: The earth belongs to the Lord. It is His by creation and by redemption.
 
-3) To whom does all the gold and silver belong?
+3. To whom does all the gold and silver belong?
 
-**Haggai 2:8 “The \_\_\_\_\_\__ is mine, and the \_\_\_\__ is mine, saith the LORD of**
+**Haggai 2:8 “The \_\_\_\_\_\__ is mine, and the \_\_\_\__ is mine, saith the LORD of**
 
 **hosts.”**
 
@@ -38,23 +38,23 @@ one in your car glove compartment, but it should be called a Stewardship Manual!
 
 We don’t own anything on this earth; we are only stewards of God’s resources.
 
-4) What does God challenge us to do?
+4. What does God challenge us to do?
 
-**Malachi 3:8-11 “Will a man rob God? Yet ye have robbed me. But ye say,**
+**Malachi 3:8-11 “Will a man rob God? Yet ye have robbed me. But ye say,**
 
-**Wherein have we robbed thee? In \_\_\_\_\_\_ and \_\_\_\_\_\___. Ye are cursed with**
+**Wherein have we robbed thee? In \_\_\_\_\_\_ and \_\_\_\_\_\___. Ye are cursed with**
 
-**a curse: for ye have robbed me, even this whole nation. Bring ye all the tithes**
+**a curse: for ye have robbed me, even this whole nation. Bring ye all the tithes**
 
-**into the storehouse, that there may be meat in mine house, and \_\_\_\_\_\_ me**
+**into the storehouse, that there may be meat in mine house, and \_\_\_\_\_\_ me**
 
-**now herewith, saith the LORD of hosts, if I will not open you the windows of**
+**now herewith, saith the LORD of hosts, if I will not open you the windows of**
 
-**heaven, and pour you out a blessing, that there shall not be room enough to**
+**heaven, and pour you out a blessing, that there shall not be room enough to**
 
-**receive it . And I will rebuke the devourer for your sakes, and he shall not**
+**receive it . And I will rebuke the devourer for your sakes, and he shall not**
 
-**destroy the fruits of your ground; neither shall your vine cast her fruit before**
+**destroy the fruits of your ground; neither shall your vine cast her fruit before**
 
 **the time in the field, saith the LORD of hosts.”**
 
@@ -64,15 +64,15 @@ question. He promises that if we give a faithful tithe and offering He will pour
 
 out a blessing so broad and deep we will not be able to receive it.
 
-5) What happens to us when we honor God first?
+5. What happens to us when we honor God first?
 
-**Matthew 6:33 “But seek ye \_\_\_\_ the kingdom of God, and his righteousness;**
+**Matthew 6:33 “But seek ye \_\_\_\_ the kingdom of God, and his righteousness;**
 
 **and \_\_\_\_\_ \_\_\_\_\_ \_\_\_\__ shall be added unto you.”**
 
-**Proverbs 3:9-10 “Honour the LORD with thy substance, and with the**
+**Proverbs 3:9-10 “Honour the LORD with thy substance, and with the**
 
-**\_\_\_\_\_\_\_\__ of all thine \_\_\_\_\_\_\_\_: So shall thy barns be filled with plenty, and**
+**\_\_\_\_\_\_\_\__ of all thine \_\_\_\_\_\_\_\_: So shall thy barns be filled with plenty, and**
 
 **thy presses shall burst out with new wine.”**
 
@@ -88,9 +88,9 @@ mean our life will be filled with untold riches, but it does mean that we will b
 
 taken care of in all aspects of our life, and will never lack anything.
 
-6) What does the word tithe mean?
+6. What does the word tithe mean?
 
-**Leviticus 27:32 “And concerning the tithe of the herd, or of the flock, even of**
+**Leviticus 27:32 “And concerning the tithe of the herd, or of the flock, even of**
 
 **whatsoever passeth under the rod, the \_\_\_\_\_\_ shall be holy unto the LORD.”**
 
@@ -130,13 +130,13 @@ part about the offering is, “The more you give to Him, the more you will recei
 
 back!” Your life will be abundant and thriving.
 
-7) Did Jesus endorse tithing?
+7. Did Jesus endorse tithing?
 
-**Matthew 23:23 “Woe unto you, scribes and Pharisees, hypocrites! for ye pay**
+**Matthew 23:23 “Woe unto you, scribes and Pharisees, hypocrites! for ye pay**
 
-**tithe of mint and anise and cummin, and have omitted the weightier matters**
+**tithe of mint and anise and cummin, and have omitted the weightier matters**
 
-**of the law, judgment, mercy, and faith: these ought ye to have \_\_\_\_, and not**
+**of the law, judgment, mercy, and faith: these ought ye to have \_\_\_\_, and not**
 
 **to leave the \_\_\_\_ \_\_\_\____.”**
 
@@ -148,9 +148,9 @@ foundation of true religion. Please note, that Jesus did not say that tithing is
 
 but that they should have done it, but not leave the others undone.
 
-8) What does God love?
+8. What does God love?
 
-**2 Corinthians 9:7 “Every man according as he purposeth in his heart, so let**
+**2 Corinthians 9:7 “Every man according as he purposeth in his heart, so let**
 
 **him give; not grudgingly, or of necessity: for God loveth a \_\_\_\_\_\_ \_\_\_\__.”**
 
@@ -166,13 +166,13 @@ one He looks highly upon. Why? Because that attitude is born from above, not
 
 our own selfish, carnal hearts.
 
-9) What should those who preach the gospel live off of?
+9. What should those who preach the gospel live off of?
 
-**1 Corinthians 9:13-14 “Do ye not know that they which minister about holy**
+**1 Corinthians 9:13-14 “Do ye not know that they which minister about holy**
 
-**things live of the things of the temple? and they which wait at the altar are**
+**things live of the things of the temple? and they which wait at the altar are**
 
-**partakers with the altar? Even so hath the Lord ordained that they which**
+**partakers with the altar? Even so hath the Lord ordained that they which**
 
 **\_\_\_\_\_\_ the gospel should live of the \_\_\_\_\_\___.”**
 
@@ -182,11 +182,11 @@ gospel they present. This is not “prosperity theology,” but this is an organ
 
 systematic way that those who share Jesus with others can continue their work.
 
-10) How can the Christian be constantly blessed?
+10. How can the Christian be constantly blessed?
 
-**Proverbs 11:24-25 “There is that scattereth, and yet increaseth; and there is**
+**Proverbs 11:24-25 “There is that scattereth, and yet increaseth; and there is**
 
-**that withholdeth more than is meet, but it tendeth to poverty. The liberal soul**
+**that withholdeth more than is meet, but it tendeth to poverty. The liberal soul**
 
 **shall be made \_\_\_: and he that watereth shall be \_\_\_\_\_\_\_ also himself.”**
 
@@ -196,9 +196,9 @@ means, “satisfied.” When you give back to God what is already His, you will 
 
 satisfied.
 
-11) What divine financial principle still applies today?
+11. What divine financial principle still applies today?
 
-**Deuteronomy 14:22 “Thou shalt truly tithe all the \_\_\_\_\_\__ of thy seed, that**
+**Deuteronomy 14:22 “Thou shalt truly tithe all the \_\_\_\_\_\__ of thy seed, that**
 
 **the field bringeth forth \_\_\_\_\_ by \_\_\_\_\__.”**
 
@@ -210,7 +210,7 @@ better than cursed money. And when you follow God’s principles in financial
 
 matters your increase will be blessed.
 
-12) What will happen to you if you follow God’s principles of stewardship?
+12. What will happen to you if you follow God’s principles of stewardship?
 
 **John 13:17 “If ye know these things, \_\_\_\__ are ye if ye do them.”**
 
