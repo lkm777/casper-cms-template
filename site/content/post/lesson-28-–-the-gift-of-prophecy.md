@@ -14,29 +14,25 @@ date: '2021-02-03T23:37:16+02:00'
 
  **Numbers 12:6 “And he said, Hear now my words: If there be a \_\_\_\_\_\__**
 
-**among you, I the LORD will make myself known unto him in a \_\_\_\_\_\_, and will speak**
+**among you, I the LORD will make myself known unto him in a \_\_\_\_\_\_, and will**
 
-**unto him in a \_\_\_\_\_\_.”**
+**speak unto him in a \_\_\_\_\_\_.”**
 
 ** NOTE**: God will speak to prophets in dreams and in visions.
 
 3. Will God's last day people have the prophetic gift?
 
-** Revelation 12:17 “And the dragon was wroth with the woman, and went to make war**
-
-**with the remnant of her seed, which \_\_\_\_ the \_\_\_\_\_\_\_\_\_\_ of \_\_\_\_, and have the \_\_\_\_\_\_\_\_**
-
-**of \_\_\_\_\_ \_\_\_\_\___.”**
+** Revelation 12:17 “And the dragon was wroth with the woman, and went to make war with the remnant of her seed, which \_\_\_\_ the \_\_\_\_\_\_\_\_\_\_ of \_\_\_\_, and have the \_\_\_\_\_\_\_\_of \_\_\_\__ \_\_\_\_\_\__.”**
 
 ** NOTE**: According to the Bible, God's last day people will have the testimony of Jesus.
 
 4. What exactly is the testimony of Jesus?
 
- **Revelation 19:10 “And I fell at his feet to worship him. And he said unto me, See**
+ **Revelation 19:10 “And I fell at his feet to worship him. And he said unto me, See thou do it not: I am thy fellowservant, and of thy brethren that have the**
 
-**thou do it not: I am thy fellowservant, and of thy brethren that have the testimony of**
+**testimony of Jesus: worship God: for the testimony of Jesus is the \_\_\_\__ of**
 
-**Jesus: worship God: for the testimony of Jesus is the \_\_\_\_\_ of \_\_\_\_\_\_\_\_\_.”**
+**\_\_\_\_\_\_\_\__.”**
 
  **NOTE**: It is abundantly clear from the book of Revelation that God's last day church will
 
