@@ -74,11 +74,7 @@ times people will begin their Christian experience with a great love for the
 
 Scriptures. When the novelty wears off, studying the Bible isn’t relished like it
 
-once was. Eventually all desire for spiritual things die out. Because of this, we
-
-should always make it a habit of studying the Word, even when we don’t “feel”
-
-like it.
+once was. Eventually all desire for spiritual things die out. Because of this, we should always make it a habit of studying the Word, even when we don’t “feel” like it.
 
 6. How can we truly benefit from reading the Scriptures?
 
